@@ -1,0 +1,1 @@
+# stingator.eu
